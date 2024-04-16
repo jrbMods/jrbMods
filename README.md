@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jrbMods aka jerryrebuilds
 - 👀 I’m interested in 3D Development And Coding
-- 📫 How to reach me : discord.io/jrbmods
+- 📫 How to reach me : https://dsc.gg/jrbmods
 - 💻 Founder of jrbMods Development LTD.
 
 <!---
