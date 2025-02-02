@@ -1,5 +1,12 @@
 # 💫 About Me:
-🌍 From Crete to the Code—3D at the Speed of Light!<br>🔭 I’m currently working on breaking the laws of physics in 3D space.<br>👯 I’m looking to collaborate on projects that make people go, “Wait, is this real life?”<br>🤝 I’m looking for help with HTML sorcery that won’t break after one click.<br>🌱 I’m currently learning how not to make the pink texture a default feature.<br>💬 Ask me about why 3D rendering always finishes right after you fall asleep.<br>⚡ Fun fact: I once accidentally textured a character’s head as a watermelon. Now it’s an NFT.
+🎙️ From Crete to the Code—3D at the Speed of Light!<br>
+🔮 I’m currently conjuring reality-defying 3D magic with a side of chaotic mischief.<br>
+👁️ I’m looking to collaborate on projects that make people question their existence.<br>
+📜 I’m looking for help with HTML spells that don’t vanish the moment you blink.<br>
+🔥 I’m currently learning how not to summon the *Pink Texture Demon* in every scene.<br>
+🎩 Ask me about why 3D renders only finish when you’ve drifted into the void of sleep.<br>
+🔊 Fun fact: I once textured a character’s head as a watermelon. Instead of fixing it, I *monetized the mistake.*<br>
+✨ "Enjoy your stay, and do mind the render ghosts!" 🎶
 
 
 ## 🌐 Socials:
